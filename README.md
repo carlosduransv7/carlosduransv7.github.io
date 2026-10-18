@@ -1,1 +1,0 @@
-# carlosduransv7.github.io
